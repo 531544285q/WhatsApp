@@ -1,2 +1,2 @@
-
-[<a href="https://whats-uui-whatsapp.com.cn">WhatsApp网页版</a>](https://whats-uui-whatsapp.com.cn)
+[<a href="https://h-yifanyi.com.cn">易翻译下载</a>](https://https://h-yifanyi.com.cn)
+[<a href="https://h-yifanyi.com.cn">易翻译下载</a>](https://https://h-yifanyi.com.cn)
